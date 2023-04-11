@@ -1,4 +1,4 @@
-### Hi there 👋
+### I don't know what I'm doing but I know that this is the way.
 
 <!--
 **thiskidkills/thiskidkills** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
